@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @20Sten14
+- 👋 Hi, I’m @Sten
 - 👀 I’m interested in BDSM.
 - 🌱 I’m currently learning the grapefruit technique.
 - 💞️ I’m looking to collaborate on my sexual adventures.
